@@ -4,4 +4,6 @@ header_pages:
   - index.md
   - about.md
 
+excerpt_separator: <!--more-->
+
 footer: "this is brian's 2022"
