@@ -5,13 +5,6 @@ title: FanFic Crossover Episode
 
 So this is a little story I wrote as a joke some time ago. Just go crazy with things. Little effort went into it. Whatever i pulled off the top of my head at that time made it here. Please enjoy.
 ___
-Luke gave his wife-sister, Leia, a deep sensual kiss while Jean Luke Picard ushered him on to the Weatherlight. Dumbledor had bequeathed the marauders map on Luke's father in order to guide the---
-layout: post
-title: FanFic Crossover Episode
----
-
-So this is a little story I wrote as a joke some time ago. Just go crazy with things. Little effort went into it. Whatever i pulled off the top of my head at that time made it here. Please enjoy.
-___
 Luke gave his wife-sister, Leia, a deep sensual kiss while Jean Luke Picard ushered him on to the Weatherlight. Dumbledor had bequeathed the marauders map on Luke's father in order to guide them to cast the one ring into the pits of mordor. As Luke stepped onto the ship his eyes fell to Leia who was great with child. He hoped he would return in time to meet his child, or return at all.
 
 When Luke and Picard boarded the Weatherlight, they met with the shady Teferi Akosa who had claimed to have seen many worlds.
